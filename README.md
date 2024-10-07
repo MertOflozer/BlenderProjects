@@ -11,9 +11,11 @@
 
 ![kedy](https://github.com/user-attachments/assets/0ce26010-162c-4197-ab3f-7616ba970d6f)
 
-https://github.com/user-attachments/assets/6687ec3c-37b9-4c26-b26a-18d98e45c358
+https://github.com/user-attachments/assets/af99027f-5f52-4f04-9a5f-6c2f94265327
 
-https://github.com/user-attachments/assets/ffff8624-380e-4fa7-9527-9fff7ec2217f
+https://github.com/user-attachments/assets/f7c3682f-97d6-46ac-a024-d30f09102f15
+
+https://github.com/user-attachments/assets/9bdf7640-fbc0-4eac-b283-d57b36865bc4
 
 https://www.youtube.com/@aeon_blend/videos
 
