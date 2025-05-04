@@ -6,6 +6,16 @@
 
 ![mandokask](https://github.com/user-attachments/assets/da8ce813-13ec-4f5c-9b89-04f7272f6410)
 
+![gt86,png](https://github.com/user-attachments/assets/08f202c1-079e-4144-b16f-bf785e3f6388)
+
+![hand_skull](https://github.com/user-attachments/assets/a5273084-b786-4a06-b754-2d7e9bbbeeed)
+
+![fogy_house](https://github.com/user-attachments/assets/dae9a0d2-bfc5-4fcf-9521-4b5d6f1b8ed3)
+
+![skull](https://github.com/user-attachments/assets/29906579-f0d7-4d93-99e1-45101cb23c9b)
+
+![eye](https://github.com/user-attachments/assets/5fdc2d87-b7c1-425d-a7da-84a58cec96bc)
+
 ![jpgate](https://github.com/user-attachments/assets/89353cfc-1bc3-4d7d-9166-a85bdf7c0290)
 
 ![masa](https://github.com/user-attachments/assets/b094eba1-f156-41ec-89eb-6b0fc26d9f9f)
